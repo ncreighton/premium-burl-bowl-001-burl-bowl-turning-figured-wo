@@ -1,0 +1,2 @@
+# premium-burl-bowl-001-burl-bowl-turning-figured-wo
+Stop losing the story behind your most stunning burl bowls. Every unique figure, every tool choice, every finish — if it's not documented, it's forgotten.  This Notion template transforms your lathe craft into an organized art archive, capturing the journey from raw burl to polished bowl. With dedicated fields for figure type, tooling, and curing n
